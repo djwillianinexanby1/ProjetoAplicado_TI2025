@@ -1,0 +1,1 @@
+# ProjetoAplicado_TI2025
